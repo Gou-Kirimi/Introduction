@@ -10,6 +10,6 @@ If i block you its either youre using a joke skin of serious things or youre pro
 # Thin ice .
 Fandoms that are either shitty like Helluva boss/Hazbin Hotel , Forsaken , and more ... I'll see depends on the first impressions . Tone tags are needed for certain jokes because i sometime dont know if its a joke or not .
 
-i also like minding my own business .
+` i also like minding my own business . `
 
-Hi *High Inquisitor Voss* .
+Hi High Inquisitor Voss .
