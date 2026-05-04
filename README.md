@@ -1,6 +1,6 @@
 # Introduction
 
-Im *Admiral , Slate or AIB* . We're offtab most the time so just whisper us .
+Im *Admiral , Kirimi or AIB* . We're offtab most the time so just whisper us .
 
 You can see us with my comfort people , mostly Voss and Crow .
 
